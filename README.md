@@ -1,0 +1,1 @@
+A realistic pretty and young with long wavy brunette Hair wearing a trendy crop top and High waisted jeans.she has a confidance pose and a slight smile on her face she has has flawless skin subtle makeup emphasizing her eyes andis accessorized with delicate gold jewellery the background is a chic urban settings with blurred City light at dusk
